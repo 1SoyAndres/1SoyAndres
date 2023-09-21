@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @1SoyAndres
+- 👀 I’m interested in programation
+- 🌱 I’m currently learning nothing by me age
+- 💞️ I’m looking to collaborate on nothing for now
